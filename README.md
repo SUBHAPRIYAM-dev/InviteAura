@@ -228,7 +228,7 @@ MIT License - See LICENSE file for details
 
 ## 🙏 Support
 
-Email: support@inviteaura.com
+Email: subhapriyamdash@zohomail.in
 
 ---
 
